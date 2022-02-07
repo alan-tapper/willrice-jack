@@ -1,1 +1,1 @@
-# Hanszen is pulling pranks on some of the other colleges. Its all in good fun.
+# Hanszen is pulling a jack on Will Rice. Its all in good fun.
